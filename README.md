@@ -17,7 +17,7 @@
 </br>
 
 **Serviço de Tecnologia de Informação (STI) da Universidade Federal de Viçosa ***campus*** Rio Paranaíba**:
-> Suporte técnico e atendimento ao público (2022 - Atualmente)
+> Suporte técnico e atendimento ao público (2022)
 
 </br>
 
